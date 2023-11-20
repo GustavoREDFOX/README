@@ -7,5 +7,7 @@ I am a entusiasm in programing softwares and websites. I using HTML, CSS, JS, PH
 Contacts:
 
 Linkedin: https://www.linkedin.com/in/gustavo-gon%C3%A7alves-de-almeida-9b2783210/
+
 Instagram: @gustavogdeati
+
 Phone: +55(15) 99751-7202
